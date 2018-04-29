@@ -7,11 +7,9 @@ This is a longtime family favorite that came from my mother's (yup, you guessed 
 
 However she passed into the next realm, she left behind a damn good brownie recipe. It's gooey, and, yes, it is indeed buttery. It has such a small amount of flour as to resemble a flourless chocolate cake in a way, which is a very nice thing to resemble.
 
-![](images/2011/10/aunt-hazel-pan.jpg)
-
 However, over the years, I've started thinking it could be just a tad chocolatey-er, so I added another ounce of chocolate to the original recipe. A few times, I've used cake flour (on the suggestion of Erica Bruce's recipe in _Cooks Illustrated_), which actually gives the brownies a nice consistency, but it's not necessary. I've even used cocoa powder\* when I was desperate (desperate for instant brownie gratification, that is), and it worked quite well, although it didn't have the same gooeyness. But one addition that I'm definitely adding to the permanent update is a healthy pinch of Maldon sea salt sprinkled over the top before popping the pan into the oven. I think it adds a nice counterpoint to the sweetness of the brownie.
 
-![](images/2011/10/aunt-hazel-cut.jpg)
+
 
 Whatever minor changes have been made, this is still Aunt Hazel's brownie recipe at its core. And Aunt Hazel, wherever you are, please accept my sincere apologies (and those of my siblings who were complicit in this) for calling you a lush all these years.
 
@@ -32,6 +30,10 @@ Add the sugar and continue to simmer to dissolve the sugar a bit. Take the pan o
 
 ![](images/2011/10/aunt-hazel-nuts.jpg) ![](images/2011/10/aunt-hazelmixed.jpg)
 
-Sprinkle top with Maldon sea salt. Bake for 20-30 minutes. The brownies are done when a toothpick comes out crumbly (not wet -- underdone and not completely clean -- overdone). Let cool at room temperature (or you can put the pan in the refrigerator or freezer if you're really impatient). Lift out by the parchment paper and cut into squares. * 3/4 cup to substitute; also, FYI, the bottom photo is the version made with cocoa (note the smoother top vs. the crackly one made with solid chocolate).
+Sprinkle top with Maldon sea salt. Bake for 20-30 minutes. The brownies are done when a toothpick comes out crumbly (not wet -- underdone and not completely clean -- overdone). Let cool at room temperature (or you can put the pan in the refrigerator or freezer if you're really impatient). 
 
+![](images/2011/10/aunt-hazel-pan.jpg)
 
+Lift out by the parchment paper and cut into squares. * 3/4 cup to substitute; also, FYI, the bottom photo is the version made with cocoa (note the smoother top vs. the crackly one made with solid chocolate).
+
+![](images/2011/10/aunt-hazel-cut.jpg)
