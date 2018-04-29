@@ -1,3 +1,4 @@
+
 # Aunt Hazel's Brownies
 
 ![](images/2011/10/AuntHazelsBrownies.jpg)
@@ -21,7 +22,10 @@ Whatever minor changes have been made, this is still Aunt Hazel's brownie recipe
 * 1/4 teaspoon salt
 * 1/2 cup walnuts, chopped Pinch of Maldon sea salt or some other flaky salt (optional)
 
-Preheat oven to 325ºF/163ºC. Line an 8"x 8" inch baking dish with parchment paper, making sure one layer has an overhang of a couple inches (this overhang will become the handles you use to lift the brownies out of the pan). Put the butter and chocolate in a heatproof dish on top of a simmering pan of water. Stir regularly until everything is melted.
+Preheat oven to 325ºF/163ºC. Line an 8"x 8" inch baking dish with parchment paper, making sure one layer has an overhang of a couple inches (this overhang will become the handles you use to lift the brownies out of the pan).
+
+
+Put the butter and chocolate in a heatproof dish on top of a simmering pan of water. Stir regularly until everything is melted.
 
 ![](images/2011/10/chocolatebath.jpg)
 
@@ -29,7 +33,7 @@ Add the sugar and continue to simmer to dissolve the sugar a bit. Take the pan o
 
 ![](images/2011/10/aunt-hazel-nuts.jpg) ![](images/2011/10/aunt-hazelmixed.jpg)
 
-Sprinkle top with Maldon sea salt. Bake for 20-30 minutes. The brownies are done when a toothpick comes out crumbly (not wet -- underdone and not completely clean -- overdone). Let cool at room temperature (or you can put the pan in the refrigerator or freezer if you're really impatient). 
+Sprinkle top with Maldon sea salt. Bake for 20-30 minutes. The brownies are done when a toothpick comes out crumbly (not wet -- underdone and not completely clean -- overdone). Let cool at room temperature (or you can put the pan in the refrigerator or freezer if you're really impatient).
 
 ![](images/2011/10/aunt-hazel-pan.jpg)
 
