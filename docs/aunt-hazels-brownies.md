@@ -1,4 +1,3 @@
-
 # Aunt Hazel's Brownies
 
 ![](images/2011/10/AuntHazelsBrownies.jpg)
