@@ -3,7 +3,7 @@
 
 ![](images/2011/10/AuntHazelsBrownies.jpg)
 
-As promised, I've got some chocolatey happiness coming your way today. This is a longtime family favorite that came from my mother's (yup, you guessed it), Aunt Hazel.
+This is a longtime family favorite that came from my mother's (yup, you guessed it), Aunt Hazel.
 
 ![](images/2011/10/chocolatebath.jpg)
 
